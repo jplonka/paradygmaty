@@ -1,0 +1,2 @@
+# paradygmaty
+Odpowiedzi na PP
